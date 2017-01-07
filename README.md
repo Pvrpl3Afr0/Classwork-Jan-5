@@ -1,2 +1,2 @@
-# Classwork-Jan-5-
-Finish this :)
+# Classwork-Jan-5
+Finished this :)
